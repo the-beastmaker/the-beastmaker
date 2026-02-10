@@ -2,7 +2,7 @@
 
 ![](https://i.imgur.com/wU8kma5.gif)
 <sup><b>usdd system</b>: frequent fronters;
-<br>· <b>kenzie</b>,   [he / they or neopronouns](https://pronouns.cc/@the-beastmaker/3ismyluckynumberbtw),   host
+<br>· <b>blue</b>,   [he / they or neopronouns](https://pronouns.cc/@the-beastmaker/-),   host
 <br>· <b>boombox</b>,   [he / hy / wy / byte + more](https://pronouns.cc/@the-beastmaker/boombox),   co-host
 <br>· <b>murdock</b>,   [he / any](https://pronouns.cc/@the-beastmaker/murdock),   protector / caretaker
 <br>· <b>racket</b>,   [he / they / she / vae / ix + more](https://pronouns.cc/@the-beastmaker/racket),   anger holder / protector
