@@ -7,7 +7,7 @@
 <br>· <b>murdock</b>,   [he / any](https://pronouns.cc/@the-beastmaker/murdock),   protector / caretaker
 <br>· <b>racket</b>,   [he / they / she / vae / ix + more](https://pronouns.cc/@the-beastmaker/racket),   anger holder / protector
 <br>· <b>rocky</b>,   [he / 🪾 / 🌲 / 🌱](https://pronouns.cc/@the-beastmaker/rochas),   syskid
-<br><sup>rochas313 sourcemates (except for <b>cappy0</b>s) <i>please</i> interact with heavy amounts of caution!</sup></sup>
+<br><sup>rochas313 doubles + sourcemates (except for <b>cappy0</b>s) <i>please</i> interact with heavy amounts of caution!</sup></sup>
 
 ![](https://i.imgur.com/IL1FE2F.gif)
 <sup>if our pony.town skins ever look familiar; you might have seen us in a regiment or a scout, since we've been in a couple!
