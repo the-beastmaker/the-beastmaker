@@ -1,7 +1,7 @@
 <hr>
 
 ![](https://i.imgur.com/wU8kma5.gif)
-<sup><b>usdd system</b>: frequent fronters;
+<sup><b>p-did system</b>: frequent fronters;
 <br>· <b>blue</b>,   [he / they or neopronouns](https://pronouns.cc/@the-beastmaker/-),   host
 <br>· <b>boombox</b>,   [he / hy / wy / byte + more](https://pronouns.cc/@the-beastmaker/boombox),   co-host
 <br>· <b>murdock</b>,   [he / any](https://pronouns.cc/@the-beastmaker/murdock),   protector / caretaker
