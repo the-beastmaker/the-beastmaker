@@ -12,7 +12,8 @@
 <b>the beastmaker system</b> ,  p-did system
 </p>
   <p align="center">
-  <sup><sub>—   pronouns.cc is a wip and will be added here eventually, sorry!</sub></sup>
+  <sup><sub>—   bodily 18+ ,  headcount of 30+ ,  fictive and non-human heavy</sub></sup>
+    <br>if you are a stranger, <i>always interact with caution</i>, especially if you're only interacting because we're a system
     <br>
 <p align="right">
 <br><i>please dncopy system skins 1:1</i> !  heavy inspiration is completely fine, just make sure you use my skins as a learning opportunity on how to make skins in a different style rather than a "freebie" !
