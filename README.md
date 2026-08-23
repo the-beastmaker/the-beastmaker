@@ -13,7 +13,7 @@
 </p>
   <p align="center">
   <sup><sub>—   bodily 18+ ,  headcount of 30+ ,  fictive and non-human heavy</sub></sup>
-    <br>if you are a stranger, <i>always interact with caution</i>, especially if you're only interacting because we're a system
+    <br>if you are a stranger, <i>always interact with caution and care</i>, especially if you're only interacting because we're a system
     <br>
 <p align="right">
 <br><i>please dncopy system skins 1:1</i> !  heavy inspiration is completely fine, just make sure you use my skins as a learning opportunity on how to make skins in a different style rather than a "freebie" !
@@ -26,6 +26,7 @@
 <br><sub><sup>this also includes anyone we know who's radqueer or uses any similar labels.</sup></sub>
 <br>we also will avoid any regiments, scouts, or species who advertise too close to the protree for our safety.
 <br>we block anyone who we believe to be copytown bots.
+<br>—   and lastly, we can and will block anyone who begins to overwhelm or stress out any of our alters. if you come on too strong, you may be blocked for 24 hours or a week just for our safety and comfort.
 <br>so   ...   if you're blocked and don't know why; <i>there's your answer.</i></b></sup>
 
 <hr>
