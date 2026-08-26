@@ -16,9 +16,10 @@
     <br>if you are a stranger, <i>always interact with caution and care</i>, especially if you're only interacting because we're a system
     <br>
 <p align="right">
-<br><i>please dncopy system skins 1:1</i> !  heavy inspiration is completely fine, just make sure you use my skins as a learning opportunity on how to make skins in a different style rather than a "freebie" !
+<br><i>please dncopy any skins with this github attached 1:1</i> !  heavy inspiration is completely fine, just make sure you use my skins as a learning opportunity on how to make skins in a different style rather than a "freebie" !
 <br><sup><sub>if you'd like, you can even whisper or dm me about what color palette(s), items, or anything that i used and i'd happily give you them !</sub></sup>
-  <br><sup><sup>oh, also any skins with "💝'd from xyz", "💝'd", or similar in the name means the skin i'm using was commissioned! this means the skin information will not be given to you if you ask since it was made by someone else, sorry!!!</sup></sup>
+  <br><sup><sup>oh, also any skins with "💝'd from xyz", "💝'd", or similar in the name means the skin i'm using was commissioned! this means the skin information will not be given to you if you ask since it was made by someone else, sorry!!!
+  <br>commissioned skins are made by <a href="https://github.com/VIVIDLYAMEMORY">VIVIDLYAMEMORY</a>, & <a href="https://github.com/feinberggg">feinberggg</a></sup></sup>
 </p>
 <p align="center">
 <sup><b>please be aware that we block <i>everyone</i> who we see sit at (or around) proship tree in safe server #1!
