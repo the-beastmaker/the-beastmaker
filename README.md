@@ -41,8 +41,11 @@
 <br>mb  <sup><sub>mibots</sub></sup>  admin. axolotl
 <br>gd  <sup><sub>goat demons</sub></sup>  admin. azazel, holly, norman, zaylee(?)
 <br>s🐸s  <sup><sub>slimesicles(?)</sub></sup>  member(?). froger, rainbox
-<br>swc  <sup><sub>sweet cakes</sub></sup>  member(?). nyan cat, rocket(?)
+<br>swc  <sup><sub>sweet cakes</sub></sup>  scout(?). nyan cat, rocket(?)
 <br>vck  <sup><sub>vanilla cookie kingdom</sub></sup>  staff(?). knight cookie, princess werehound brute, cream sheep(?)
+<br>rf  <sup><sub>radiance force</sub></sup>  member(?). rochas313
+<br><sup><sub>i'm no longer in radiance force and i will never join back. radiance force members will be blocked on sight. /srs</sub></sup>
+<br>pmd  <sup><sub>pokemon: mystery dungeon</sub></sup>  scout(?). eye spy
 <br>undawn  <sup><sub>uneasy alliance: new dawn(?)</sub></sup>  staff(?). rust_010, rochas313
 <br>area-14  <sup><sub>scp: area-14(?)</sub></sup>  staff(?). blue, rochas313, the second coming, king orange, slasher
 <br>esm  <sup><sub>endsim</sub></sup>  t✦mt. lyke, rochas313, the second coming, the chosen one, the knocker, msak__, cuphead, tenna
