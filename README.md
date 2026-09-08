@@ -48,7 +48,7 @@
 <br>pmd  <sup><sub>pokemon: mystery dungeon</sub></sup>  scout(?). eye spy
 <br>undawn  <sup><sub>uneasy alliance: new dawn(?)</sub></sup>  staff(?). rust_010, rochas313
 <br>area-14  <sup><sub>scp: area-14(?)</sub></sup>  staff(?). blue, rochas313, the second coming, king orange, slasher
-<br>esm  <sup><sub>endsim</sub></sup>  t✦mt. lyke, rochas313, the second coming, the chosen one, the knocker, msak__, cuphead, tenna
+<br>esm  <sup><sub>endsim</sub></sup>  t✦au. lyke, rochas313, the second coming, the chosen one, the knocker, msak__, cuphead, tenna
 <br>f🐾b  <sup><sub>foodbats</sub></sup>  pon. spamtenna divorce cake, creeper milk
 </details>
 </p>
