@@ -36,7 +36,7 @@
 <details><summary>regiments, scouts, & species we've been in</summary>
 <sup><sub>we've been in a couple more than the ones listed! however we weren't very active in them...
 <br>this doesn't include waitlists either!
-<br>any <i>(?)</i>s used are because i can't remember the full name, abbreviation, rank, or claim i had and don't have a good reference or way to know what it was</sub></sup>
+<br>any <i>(?)</i>s used are because we can't remember the full names, abbreviations, ranks, or claims we had and don't have a good reference or way to know what it was</sub></sup>
 <br>
 <br>mb  <sup><sub>mibots</sub></sup>  admin. axolotl
 <br>gd  <sup><sub>goat demons</sub></sup>  admin. azazel, holly, norman, zaylee(?)
@@ -44,10 +44,12 @@
 <br>swc  <sup><sub>sweet cakes</sub></sup>  scout(?). nyan cat, rocket(?)
 <br>vck  <sup><sub>vanilla cookie kingdom</sub></sup>  staff(?). knight cookie, princess werehound brute, cream sheep(?)
 <br>rf  <sup><sub>radiance force</sub></sup>  member(?). rochas313
-<br><sup><sub>i'm no longer in radiance force and i will never join back. radiance force members will be blocked on sight. /srs</sub></sup>
+<br><sup><sub>we're no longer in radiance force and i will never join back. radiance force members will be blocked on sight. /srs</sub></sup>
 <br>pmd  <sup><sub>pokemon: mystery dungeon</sub></sup>  scout(?). eye spy
-<br>undawn  <sup><sub>uneasy alliance: new dawn(?)</sub></sup>  staff(?). rust_010, rochas313
+  <br><sup><sub>unsure if pmd is still active, but i will not rejoin it either</sub></sup>
+<br>undawn / trua  <sup><sub>uneasy alliance: new dawn(?) / the robloxia: uneasy alliance(?)</sub></sup>  staff(?). rust_010, rochas313
 <br>area-14  <sup><sub>scp: area-14(?)</sub></sup>  staff(?). blue, rochas313, the second coming, king orange, slasher
+<br><sup><sub>and for one last time, i will not rejoin area-14 or undawn / trua due to personal reasons</sub></sup>
 <br>esm  <sup><sub>endsim</sub></sup>  th✦m. lyke, rochas313, the second coming, the chosen one, the knocker, msak__, cuphead, tenna
 <br>f🐾b  <sup><sub>foodbats</sub></sup>  pon. spamtenna divorce cake, creeper milk
 </details>
