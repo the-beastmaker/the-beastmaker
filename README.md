@@ -47,6 +47,8 @@
 <br><sup><sub>we're no longer in radiance force and i will never join back. radiance force members will be blocked on sight. /srs</sub></sup>
 <br>pmd  <sup><sub>pokemon: mystery dungeon</sub></sup>  scout(?). eye spy
   <br><sup><sub>unsure if pmd is still active, but i will not rejoin it either</sub></sup>
+<br>f.ph!(?)  <sup><sub>faction phighters</sub></sup>  co-owner(?). boombox, medkit, windforce, steampunk gloves(?)
+  <br><sup><sub>unsure if f.ph! is still active either, but again, i will not rejoin it</sub></sup>
 <br>undawn / trua  <sup><sub>uneasy alliance: new dawn(?) / the robloxia: uneasy alliance(?)</sub></sup>  staff(?). rust_010, rochas313, 007n7
 <br>area-14  <sup><sub>scp: area-14(?)</sub></sup>  staff(?). blue, rochas313, the second coming, king orange, slasher
 <br><sup><sub>and for one last time, i will not rejoin area-14 or undawn / trua due to personal reasons</sub></sup>
