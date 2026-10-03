@@ -54,6 +54,7 @@
 <br><sup><sub>and for one last time, i will not rejoin area-14 or undawn / trua due to personal reasons</sub></sup>
 <br>esm  <sup><sub>endsim</sub></sup>  th✦m. lyke, rochas313, the second coming, the chosen one, the knocker, msak__, cuphead, tenna
 <br>f🐾b  <sup><sub>foodbats</sub></sup>  pon. spamtenna divorce cake, creeper milk
+<br>lov  <sup><sub>libraria oculi vigilantis</sub></sup>  meow. lyke
 </details>
 </p>
 
